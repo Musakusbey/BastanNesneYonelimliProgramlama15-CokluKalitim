@@ -1,0 +1,2 @@
+# BastanNesneYonelimliProgramlama15-CokluKalitim
+BastanNesneYonelimliProgramlama15-CokluKalitim
